@@ -1,4 +1,4 @@
-Im a phd studend doing research about the transformation of urban energy systems especially in the field of residential districts. 
+Im a phd studend doing research about the transformation of urban energy systems, especially in the field of residential districts. 
 Im interested in the development of different tools and concepts that help decision makers to find the right paths towards climate neutrality.
 
 
